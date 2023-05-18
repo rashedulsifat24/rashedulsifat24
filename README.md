@@ -5,5 +5,5 @@
  
  Anyone can contact me on
 
-- Fiverr : https://www.fiverr.com/rashedul_sifat
+- WhatsApp : +8801629889754 
 - E-mail : rashedulsifat24@gmail.com
